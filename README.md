@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Dkrozz
+- 👀 I’m interested in all about software and tecnology.
+- 🌱 I’m currently study Ing Software at the UNAD University in Colombia
+- 📫 How to reach me:
+- Personal Email: blackarrow1994@hotmail.es
+- Personal Gmail: daguzman1994@gmail.com
+- Student email: daguzmanaf@unadvirtual.edu.co
+- Skype: blackarrow1994
